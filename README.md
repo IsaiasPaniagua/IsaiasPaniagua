@@ -1,7 +1,7 @@
 ### Hola Compañeros 👋
 
 
-Gusto de visitar el perfil del alumno 👨‍🏫 ✨ Isaias Paniagua ✨.
+Gusto de visitar el perfil del alumno 👨 ‍ 🏫 ✨ Isaias Paniagua ✨.
 
 Cursando la carrera de ISC en el ITT:
 
